@@ -1,3 +1,3 @@
-https://binarybrawler330.github.io/
+https://Airujing.github.io/
 
 My Personal Blog via GitHub
